@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sumit2345-c
-- 👀 I’m interested in PYTHON, JAVA 
+- 👀 I’m interested in JAVA , Python
 - 🌱 I’m currently learning PYTHON, JAVA .
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 9867769284  EMAIL- sumitbadugu23@gmail.com
